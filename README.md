@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @NikkiHonzulu
 - 👀 I’m interested in Gaming, JavaScript, Tech, Anime, Linux
 - 🌱 I’m currently learning Swift
-- 📫 How to reach me: my Discord: @decinskychuj or my email nikki@nikkihonzulu.cz
+- 📫 How to reach me: My email nikki@nikkihonzulu.cz or admin@nikkihonzulu.cz
